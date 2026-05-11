@@ -1,4 +1,4 @@
-# 
+# updated Todoist for Windows Module | kanban-boards + team-assignment offers the most advanced Todoist for Windows module, with kanban-boards and team-assignment. Ideal for Windows
 
 
 
